@@ -5,7 +5,6 @@
 
 - 📫 How to reach me **rabnawazz2006@gmail.com**
 
-- ⚡ Fun fact **I am funny😊**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
